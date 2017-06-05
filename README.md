@@ -1,1 +1,1 @@
-# [joystickjordan.com](www.joystickjordan.com)
+# [joystickjordan.com](https://www.joystickjordan.com)
